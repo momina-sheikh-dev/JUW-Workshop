@@ -1,1 +1,1 @@
-JUW_Gemini_Workshop 
+Jinnah University For Women Gemini Workshop 💎
